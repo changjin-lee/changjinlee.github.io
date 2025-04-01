@@ -1,1 +1,1 @@
-This is Changjin Lee's Homepage!
+This is Changjin Lee's GitHub Home!
